@@ -1,4 +1,6 @@
-# **_Black Panther_**
+# **_Black Panther (2018)_** 🎞
+![image](https://github.com/user-attachments/assets/082afe37-4324-4c42-9930-b2e95e13e3fe)
+
 
 A 2018 superhero film directed by Ryan Coogler and produced by Marvel Studios. It's the 18th film in the Marvel Cinematic Universe (MCU)1. The movie stars Chadwick Boseman as T'Challa (Black Panther), alongside Michael B. Jordan, Lupita Nyong'o, Danai Gurira, Martin Freeman, and many others.
 
@@ -49,6 +51,18 @@ The film received widespread acclaim for its direction, acting (especially by Bo
 
 **N'Jobu (Sterling K. Brown):** Killmonger's father and T'Challa's uncle.
 
+> ## **Rating**
+❤❤❤❤❤ (5/5)
 
+> ## **_Movie Reviews:_**
 
+_Ricky Roldan:_ I love this movie, very interesting and i Like all the Characters. ❤💕
+
+_Rotten Tomatoes:_ "Black Panther elevates superhero cinema to thrilling new heights while telling one of the MCU’s most absorbing stories -- and introducing some of its most fully realized characters." 👍
+
+_Roger Ebert:_ "Black Panther transcends the superhero genre to emerge as an epic of operatic proportions. The numerous battle sequences float on the surface of a deep ocean of character development and attention to details both grandiose and minute2." 🤞
+
+_Empire:_ "Black Panther is a giddily enjoyable, convention-bucking 134-minute epic that somehow manages to simultaneously be a comic-book blockbuster, a pulsating espionage thriller and an Afro-futurist family saga." ✔
+
+_NME:_ "Black Panther is the first major superhero movie with a predominantly black cast. It’s not just good. It’s the best Marvel movie yet." 🙌
 
