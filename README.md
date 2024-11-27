@@ -7,6 +7,8 @@ A 2018 superhero film directed by Ryan Coogler and produced by Marvel Studios. I
 > ## **Plot Summary**
 The story follows T'Challa, who returns to his home, the technologically advanced African nation of Wakanda, to take his rightful place as king after his father's death. However, his claim to the throne is challenged by Erik Killmonger (Michael B. Jordan), who plans to abandon Wakanda's isolationist policies and start a global revolution1. T'Challa must confront this new threat and protect his people and their way of life.
 
+![black-panther-riding-vehicle-a3ijwkyqn5kp6hwm](https://github.com/user-attachments/assets/bd7cc5df-6474-4c37-ae38-4ed22b5bc4e8)
+
 > ## **Key Details**
 **Director:** Ryan Coogler
 
@@ -65,4 +67,3 @@ _Roger Ebert:_ "Black Panther transcends the superhero genre to emerge as an epi
 _Empire:_ "Black Panther is a giddily enjoyable, convention-bucking 134-minute epic that somehow manages to simultaneously be a comic-book blockbuster, a pulsating espionage thriller and an Afro-futurist family saga." ✔
 
 _NME:_ "Black Panther is the first major superhero movie with a predominantly black cast. It’s not just good. It’s the best Marvel movie yet." 🙌
-
